@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @RyanKeyesB
-- 👀 I’m interested in ... Art. writting and animals!
-- 🌱 I’m currently learning ... Everyhting in school?
-- 💞️ I’m looking to collaborate on ...Anything fantasy, romance or horro based!
-- 📫 How to reach me ... (sorry not yet!)
-- 😄 Pronouns: ...She/her
-- ⚡ Fun fact: ... FNAFFFFF
+- 👀 I’m interested in ... Art ,writting, book , video games and animals! (And friends and family ig..)
+- 🌱 I’m currently learning ... How to make interative stories!
+- 💞️ I’m looking to collaborate on ...Anything fantasy, romance or horror based!
+- 📫 How to reach me ... (sorry! Not open to collab yet!)
+- 😄 Pronouns: ...She/her (They?)
+- ⚡ Fun fact: ... Fnaf and hellaverse, Am i right? *wink
 
 <!---
 RyanKeyesB/RyanKeyesB is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
